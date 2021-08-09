@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Uhjinii
+- 👀 I’m interested in hacking
+- 🌱 I’m currently not learning 
